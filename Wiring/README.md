@@ -1,0 +1,1 @@
+Frtizing wiring digram pictures
